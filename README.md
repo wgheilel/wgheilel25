@@ -1,9 +1,9 @@
 ### Welcome to my proile! ⁺✦⠀.⠀♡⁺⠀.⠀⁺✦⠀.⠀♡⁺⠀.⠀⁺✦⠀.⠀♡⁺
 
 
-⁺✦ Meu nome é Gabriela ⟡﹢ 🍒
-⁺✦ Estou aprendendo a linguagem JavaScript ⁺☆
-⁺✦ Esse é meu espaço para organizar meus projetos ⁺☆
+- ⁺✦ Meu nome é Gabriela ⟡﹢ 🍒
+- ⁺✦ Estou aprendendo a linguagem JavaScript ⁺☆
+- ⁺✦ Esse é meu espaço para organizar meus projetos ⁺☆
 
 
 ### to contact me ♡⁺

@@ -11,4 +11,4 @@
 gabriela.cecato@escola.pr.gov.br
 
 
-![](https://media.tenor.com/9jeKq6NWOfAAAAAC/smoochhug-smooch.gif)
+![](https://tenor.com/pt-BR/view/kiss-gif-26618926)

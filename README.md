@@ -11,4 +11,4 @@
 gabriela.cecato@escola.pr.gov.br
 
 
-![](https://tenor.com/pt-BR/view/kiss-gif-26618926)
+![](https://media.tenor.com/CVOoi1PbEkMAAAAi/lilo-and-stitch-animation.gif)
